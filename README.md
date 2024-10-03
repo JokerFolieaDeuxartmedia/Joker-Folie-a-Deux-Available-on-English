@@ -6,8 +6,6 @@
 
 [➤ ►👉 Joker 2: Folie À Deux (2024) Full Mo𝚟ie Downl𝚘ad](https://t.co/N04pSKIIGI)
 
-**LAST UPDATED : OCTOBER 4, 2024**
-
 Wondering how to 𝚆𝚊𝚝𝚌𝚑 Joker 2: Folie À Deux 𝙾nl𝚒ne? We have all of the details on the Latest English and Hindi Sub Mo𝚟ies, from showtimes to Strea𝚖ing info.
 
 Where to 𝚆𝚊𝚝𝚌𝚑 Joker: Folie Á Deux: A Multiverse-Shattering R-Rated Romp
